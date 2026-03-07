@@ -1,6 +1,6 @@
 # 👩🏻‍💻 Deymeson Rodrigues
 
-**`Desenvolvedor FullStack`**
+**`Desenvolvedor FullStack ou quase😞`**
 
 Me chamo Deymeson Rodrigues, tenho 19 anos. Sou apaixonado por tecnologia e costumo consumir muito conteúdo sobre.
 
